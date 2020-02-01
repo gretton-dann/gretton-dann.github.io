@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "A BUSY DAY"
+title:  "A busy day"
 date:   2020-01-30 19:00:00 +0000
 categories: HOUSE DIY
 ---
