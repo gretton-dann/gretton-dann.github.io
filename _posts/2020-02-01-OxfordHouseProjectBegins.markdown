@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "IN THE BEGINNING "
+title:  "In The Beginning"
 date:   2020-01-29 19:10:01 +0000
 categories: HOUSE DIY
 ---
