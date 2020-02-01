@@ -31,14 +31,17 @@ categories: CAT-1 CAT-2
 ---
 ```
 
-Where:
+  Where:
 
- * **TITLE**: Should be the blog title
- * **YYYY-MM-DD HH:MM:SS**: Should be the current date
- * **CAT-#**: Are category names.  You can make these up!
+   * **TITLE**: Should be the blog title
+   * **YYYY-MM-DD HH:MM:SS**: Should be the current date
+   * **CAT-#**: Are category names.  You can make these up!
 
 6. Under that enter your blog post.  The text is in Markdown format.
-   Instructions here: https://guides.github.com/features/mastering-markdown/
+   Instructions on the [Mastering Markdown](https://guides.github.com/features/mastering-markdown/) page.
+
+   Note there is a Preview button which will give a basic idea of how the page
+   will look.  But it is not 100% accurate.
 
 7. In the box 'Commit new file' enter a short title for the commit.  "Add blog
    post for YYYY-MM-DD" is fine.  Also add a longer description if you feel it
