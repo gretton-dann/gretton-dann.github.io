@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "A DIFFERENT DAY"
+title:  "A Different Day"
 date:   2020-01-31 19:00:00 +0000
 categories: HOUSE DIY
 ---
