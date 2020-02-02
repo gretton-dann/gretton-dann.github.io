@@ -2,7 +2,7 @@
 
 ## Web Page content
 
-The content (text and photos, excluding comments) of web-pages is Copyright 2005-2020 Matthew and Judith Gretton-Dann.
+Except as otherwise mentioned the content of web-pages is Copyright 2003-2020 Matthew and Judith Gretton-Dann.
 
 It is licensed under the Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International license.  The text of which is available on the [Creative Commons website](https://creativecommons.org/licenses/by-nc-nd/4.0/legalcode)
 
