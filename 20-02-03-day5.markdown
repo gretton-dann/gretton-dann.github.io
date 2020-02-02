@@ -19,6 +19,6 @@ and have time on my hands, so I'll get there if needed.
 However, what I promised today was photographs, so hopefully some will appear here now:
 
 ![Image of Yaktocat]
-(gretton-dann.github.io/Photographs/Botanics1/images/DSCF0590.JPG.jpg)
+(https://www.gretton-dann.org.uk/Photographs/Botanics1/images/DSCF0590.JPG.jpg)
 
 This has nothing to do with our house, and is in fact an image I took in Cambridge Botanic gardens over 15 years ago, but I am working on this one step at a time. First, learn how to embed the pictures, then I'll learn how to upload the ones I want for this blog. In case anyone is interested, the blog is being written in markdown language using GitHub tools - can't imagine why Matt would have chosen that... :)
