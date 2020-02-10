@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "A day of People"
+title:  "Quotation-Tastic"
 date:   2020-02-05 23:00:00 +0000
 categories: HOUSE DIY
 ---
@@ -24,3 +24,8 @@ No photos of the work today, but a photograph of the wonderful bulbs that are bl
 beautiful privilege that I wouldn't have had if we'd been in our own house sooner, so that's a lovely positive.
 
 ![Enjoying the pleasurable result of someone else's hard work planting](/Photographs/HouseProject3/IMG_7750.JPG)
+
+At 4pm, we had a lovely local lady come and pick up the water softener, so that is one thing that has gone to a new home - hoorah!
+
+Then in the evening, had a handyman round who was recommended by the previous owner of the house (well, the daughter of same,
+anyway).  We currently have no banister to the stairs, just a completely open side. This is definitely an accident waiting to happen for me - so we're trying to get that remedied as quickly as possible. Hopefully this handyman can fix this before the main work starts.  What was very useful was the conversation where he mentioned that many of the houses in the estate have had living room floors that have sunk in the middle - because the whole estate was built on a marsh (what fun!!)  Thankfullly, the council have put in a lot of flood defences, so hopefully they will all work...
