@@ -27,6 +27,9 @@ Here is the pile of ceiling tiles from the front bedroom
 
 And here is the ceiling with tiles removed - doesn't look too bad, thankfully.  Only three more rooms of ceiling tiles to go!!!
 
+![An hour of hitting tiles only got me a few removed](/Photographs/HouseProject3/IMG_7747.JPG)
+
+Much effort to not much result with the ceramic tile removal, sadly.
 
 In between all this, 
 After school, the boy came and helped out with removing wallpaper - we're getting him to work on his room first - and fully supervising
