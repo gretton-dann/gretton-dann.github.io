@@ -29,3 +29,6 @@ For those of you wondering, by the way, this is my mode of transport across to t
 fro in it - it's not the most stable of bike trailers, but is okay for the short journeys I am making at the moment, and saving
 my arms hugely
 ![My beast of burden](/Photographs/HouseProject3/IMG_7758.JPG)
+
+After nap, headed back again, fixed loft ladder (it's a little rickety, but will do the job for now), stripped the attic ceiling of tiles and waited for another builder.
+5pm Third builder of the day: I must be getting old when the builders are looking too young!!  He reckons he could start in 3 weeks, and that the job would take 5-8 weeks. It's fascinating how different people look at a job.
