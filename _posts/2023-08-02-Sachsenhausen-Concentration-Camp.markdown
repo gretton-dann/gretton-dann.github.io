@@ -11,7 +11,7 @@ I am not really certain why I want to catalogue this with such formality, but I 
 
 I went early in the morning, in hopes that it would be fairly quiet, as I had no idea what sort of reaction I was liable to have. I did think about going on an official tour, but again decided that I didn't want to be vulnerable & emotional over this in front of strangers, when I wasn't certain what emotional reaction I was liable to have.
 
-![Photograph of entrance](/Photographs/20Sachsenhausen/images/IMG_1467.jpeg)
+![Photograph of entrance](/Photographs/2003-08-02-Sachsenhausen/images/IMG_1467.jpeg)
 
 Getting to Sachsenhausen was fairly straight-forward, train from Ostkreuz & then bus directly from Oranienburg to Sachsenhausen memorial. You arrive to a split wall (photo taken from Sachsenhausen-sbg.de as mine did not come out) that
 states "Memorial And Museum sachsenhausen" which feels very stark. Walking through those you go into the visitor centre. Entrance is free, & audio guides (in multiple languages) are €3. 50. The lady at the desk told me to allow 2 hours for the visit, & said that the audio guide contained 6 + hours of recording. She was very pleasant & helpful. I did find myself at several times throughout my visit wondering how people cope with working in such a place, & what sort of outlook it would give you on such things.
@@ -26,7 +26,7 @@ In summer 1936, Sachsenhausen Concentration Camp was built, using prison labour.
 
 When I'd looked at thee 3- D map, I was still rather unclear about which way I was facing, & Which way I was supposed to go. This was compounded by the sight of 20-30 cyclists coming down a road I had thought was the entrance to the camp.
 
-[Given that both ends of that road were completely blocked off by large gates with no obvious access I am still really unclear as to where those cyclists came from, as there was definitely no cycling allowed on the site]. So, my map reading letting me down, & my anxiety increasing (I was terrified of accidentally doing something disrespectful; walking on the wrong thing or touching something I shouldn't) I chose the cheats' option & followed a couple of people who looked like they knew where they were going.
+(Given that both ends of that road were completely blocked off by large gates with no obvious access I am still really unclear as to where those cyclists came from, as there was definitely no cycling allowed on the site). So, my map reading letting me down, & my anxiety increasing (I was terrified of accidentally doing something disrespectful; walking on the wrong thing or touching something I shouldn't) I chose the cheats' option & followed a couple of people who looked like they knew where they were going.
 
 The road that we walked down was a wide path, with a wall on the left & fencing on the right. Through the fence on the right was a building, & the following sign in front of it (photo taken from google maps)
 
