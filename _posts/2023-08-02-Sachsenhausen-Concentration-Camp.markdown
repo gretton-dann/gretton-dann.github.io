@@ -16,23 +16,23 @@ I went early in the morning, in hopes that it would be fairly quiet, as I had no
 
 
 Getting to Sachsenhausen was fairly straight-forward, train from Ostkreuz & then bus directly from Oranienburg to Sachsenhausen memorial. You arrive to a split wall (photo taken from Sachsenhausen-sbg.de as mine did not come out) that
-states "Memorial And Museum sachsenhausen" which feels very stark. Walking through those you go into the visitor centre. Entrance is free, & audio guides (in multiple languages) are €3. 50. The lady at the desk told me to allow 2 hours for the visit, & said that the audio guide contained 6 + hours of recording. She was very pleasant & helpful. I did find myself at several times throughout my visit wondering how people cope with working in such a place, & what sort of outlook it would give you on such things.
+states "Memorial And Museum sachsenhausen" which feels very stark. Walking through those you go into the visitor centre. Entrance is free, & audio guides (in multiple languages) are €3.50. The lady at the desk told me to allow 2 hours for the visit, & said that the audio guide contained 6+ hours of recording. She was very pleasant & helpful. I did find myself at several times throughout my visit wondering how people cope with working in such a place, & what sort of outlook it would give you on such things.
 
 ![Relief map of camp](/Photographs/2003-08-02-Sachsenhausen/IMG_4033.jpeg)
  
-Once I'd got my audio guide, I came out from the visitor centre into the memorial beginning. It starts with 3- D maps of the site, several of them, showing the layout of the site at different times.
+Once I'd got my audio guide, I came out from the visitor centre into the memorial beginning. It starts with 3-D maps of the site, several of them, showing the layout of the site at different times.
 
 A camp in Oranienburg was initially stated by the Nazis in 1933-34, when it was mainly used for persecution of members of opposition parties. This was in the middle of the town, on the site of a disused brewery. This was then closed in 1934, taken over by the SS, & kept as a reserve camp.
 
 In summer 1936, Sachsenhausen Concentration Camp was built, using prison labour. It was designed to be a model for other concentration camps.
 
-When I'd looked at thee 3- D map, I was still rather unclear about which way I was facing, & Which way I was supposed to go. This was compounded by the sight of 20-30 cyclists coming down a road I had thought was the entrance to the camp.
+When I'd looked at the 3-D map, I was still rather unclear about which way I was facing, & Which way I was supposed to go. This was compounded by the sight of 20-30 cyclists coming down a road I had thought was the entrance to the camp.
 
 (Given that both ends of that road were completely blocked off by large gates with no obvious access I am still really unclear as to where those cyclists came from, as there was definitely no cycling allowed on the site). So, my map reading letting me down, & my anxiety increasing (I was terrified of accidentally doing something disrespectful; walking on the wrong thing or touching something I shouldn't) I chose the cheats' option & followed a couple of people who looked like they knew where they were going.
 
 The road that we walked down was a wide path, with a wall on the left & fencing on the right. Through the fence on the right was a building, & the following sign in front of it (photo taken from google maps)
 
-![Photo Hochschule]((/Photographs/2003-08-02-Sachsenhausen/missing.jpeg)
+![Photo Hochschule](/Photographs/2003-08-02-Sachsenhausen/IMG_1468.jpeg)
 
 I don't know what it must be like trying to teach justly & compassionately in a place with such a history, but it was good to see that such things had been explicitly from the following text. But given all the buildings all over the place that are hundreds of years old that I don't give a second thought too as to what their history is, its possibly just me being oversensitive.
 
@@ -47,7 +47,7 @@ In the commandants house was information about some of the people who had worked
 Also complicating the history, in my head at least, was the information, also in the commandants house, that the same concentration camp had been used between 1945-50 by the Russians. Some of the same people were kept imprisoned as had been held by the Nazis, & Similarly awful treatment had been meted out
 to prisoners, including mass graves, but not including the gas chambers or crematoria- as these latter two were blown up by the Soviets.
 
-Beyond the commandants house, but before the second wall, was a grassed area with lots of memorials to honour people who were killed in Sachsenhausen. Some of the memorials were for individuals & some for groups. [On a side note, there is a google app for iOS which translates text in images live & it was invaluable for understanding some of the many memorials in different languages].
+Beyond the commandants house, but before the second wall, was a grassed area with lots of memorials to honour people who were killed in Sachsenhausen. Some of the memorials were for individuals & some for groups. (On a side note, there is a google app for iOS which translates text in images live & it was invaluable for understanding some of the many memorials in different languages).
 
 ![Sachsenhausen Memorials](/Photographs/2003-08-02-Sachsenhausen/IMG_1469.jpeg)
 
