@@ -49,35 +49,13 @@ to prisoners, including mass graves, but not including the gas chambers or crema
 
 Beyond the commandants house, but before the second wall, was a grassed area with lots of memorials to honour people who were killed in Sachsenhausen. Some of the memorials were for individuals & some for groups. [On a side note, there is a google app for iOS which translates text in images live & it was invaluable for understanding some of the many memorials in different languages].
 
-![Sachsenhausen Memorials 1](/Photographs/2003-08-02-Sachsenhausen/IMG_4036.jpeg)
-![Sachsenhausen Memorials 2](/Photographs/2003-08-02-Sachsenhausen/IMG_4038.jpeg)
-![Sachsenhausen Memorials 3](/Photographs/2003-08-02-Sachsenhausen/IMG_4039.jpeg)
-![Sachsenhausen Memorials 4](/Photographs/2003-08-02-Sachsenhausen/IMG_4040.jpeg)
-![Sachsenhausen Memorials 5](/Photographs/2003-08-02-Sachsenhausen/IMG_4041.jpeg)
-![Sachsenhausen Memorials 6](/Photographs/2003-08-02-Sachsenhausen/IMG_4042.jpeg)
-![Sachsenhausen Memorials 7](/Photographs/2003-08-02-Sachsenhausen/IMG_4043.jpeg)
-![Sachsenhausen Memorials 8](/Photographs/2003-08-02-Sachsenhausen/IMG_4044.jpeg)
-![Sachsenhausen Memorials 9](/Photographs/2003-08-02-Sachsenhausen/IMG_4045.jpeg)
-![Sachsenhausen Memorials 10](/Photographs/2003-08-02-Sachsenhausen/IMG_4046.jpeg)
-![Sachsenhausen Memorials 11](/Photographs/2003-08-02-Sachsenhausen/IMG_4047.jpeg)
-![Sachsenhausen Memorials 12](/Photographs/2003-08-02-Sachsenhausen/IMG_4048.jpeg)
-![Sachsenhausen Memorials 13](/Photographs/2003-08-02-Sachsenhausen/IMG_4049.jpeg)
-![Sachsenhausen Memorials 14](/Photographs/2003-08-02-Sachsenhausen/IMG_4050.jpeg)
-![Sachsenhausen Memorials 15](/Photographs/2003-08-02-Sachsenhausen/IMG_4051.jpeg)
-![Sachsenhausen Memorials 16](/Photographs/2003-08-02-Sachsenhausen/IMG_4052.jpeg)
-![Sachsenhausen Memorials 17](/Photographs/2003-08-02-Sachsenhausen/IMG_4053.jpeg)
-![Sachsenhausen Memorials 18](/Photographs/2003-08-02-Sachsenhausen/IMG_4054.jpeg)
-![Sachsenhausen Memorials 19](/Photographs/2003-08-02-Sachsenhausen/IMG_4055.jpeg)
-![Sachsenhausen Memorials 20](/Photographs/2003-08-02-Sachsenhausen/IMG_4056.jpeg)
-![Sachsenhausen Memorials 21](/Photographs/2003-08-02-Sachsenhausen/IMG_4057.jpeg)
-![Sachsenhausen Memorials 22](/Photographs/2003-08-02-Sachsenhausen/IMG_4058.jpeg)
-![Sachsenhausen Memorials 23](/Photographs/2003-08-02-Sachsenhausen/IMG_4059.jpeg)
+![Sachsenhausen Memorials](/Photographs/2003-08-02-Sachsenhausen/IMG_1469.jpeg)
 
- Then I came to the bit I knew I'd been putting off - actually going up to the gates of
+
+ Then I came to the bit I knew I'd been putting off - actually going up to the gates of the camp. I hadn't realised that "Arbeit Macht Frei" had been on more camps than just Auchswitz, so to see it there in the gate made me shudder.
 
 ![Sachsenhausen Memorials 23](/Photographs/2003-08-02-Sachsenhausen/IMG_4061.jpeg)
 
-the camp. I hadn't realised that "Arbeit Macht Frei" had been on more camps than just Auchswitz, so to see it there in the gate made me shudder.
  
 I had always assumed that concentration camps were rectangular, so was taken aback to find out that this one was triangular. It was designed this way in order to give a clear line of sight to all parts of the camp from just one watch tower-but didn't work so they ended up putting more watch towers in over time.
 
@@ -89,27 +67,29 @@ Below is a model of the camp as it would have looked 1939-45. The barracks were 
 
 The site is actually remarkably empty. Most of the original buildings were torn down, & only a few examples are still standing. All the foundations are marked, but it wasn't clear which buildings were original & which were reproductions. The Soviet union first turned it into a memorial, as a triumph of anti-facism over facism - but that first memorial had nothing about the great number of Jewish people or others who were killed & tortured there on racial grounds.
 
-[Photo]
+![Info about first memorial](/Photographs/2003-08-02-Sachsenhausen/IMG_4090.jpeg)
 
-It took an international outcry for one of their barracks to be reproduced, & from this it can be seen that their quarters & their treatment were in some ways worse than that of the other prisoners (no Jewish people were allowed access to the infirmary. for example). Jewish people were held here until 1942, when most were transported to camps further East. As the soviet advances happened in 1944, Jewish prisoners were brought back West again, back to Sachsenburg and other camps in Germany.
+It took an international outcry for one of the Jewish barracks to be reproduced, & from this it can be seen that their quarters & their treatment were in some ways worse than that of the other prisoners (no Jewish people were allowed access to the infirmary. for example). Jewish people were held here until 1942, when most were transported to camps further East. As the soviet advances happened in 1944, Jewish prisoners were brought back West again, back to Sachsenburg and other camps in Germany.
 
 ![Barracks](/Photographs/2003-08-02-Sachsenhausen/IMG_4087.jpeg)
 
 ![Bombing Memorial](/Photographs/2003-08-02-Sachsenhausen/IMG_4091.jpeg)
 
-In 1992, after the rebuilding of a Jewish barracks, far right people broke in & fire bombed that barracks, It was rebuilt using the scorched beams. I do not understand why anyone thinks that destroying the Jewish barracks would have been a good thing to do. I can only assume that it was because they thought it was letting lies because they believed that the murder of Jews on such a scale did not happen. But can't imagine why someone thinks that making such things up would be a good idea, or why anyone believes that someone else would do that. But, it may just be naivety on my part because I can't understand people telling lies full stop. I will go and read up more on this to see if it is better explained by anyone.
+In 1992, after the rebuilding of a Jewish barracks, far right people broke in & fire bombed that barracks, It was rebuilt using the scorched beams. I do not understand why anyone thinks that destroying the Jewish barracks would have been a good thing to do. I can only assume that it was because they thought it was letting lies because they believed that the murder of Jews on such a scale did not happen. But can't imagine why someone thinks that making such things up would be a good idea, or why anyone believes that someone else would do that. But, it may just be naivety on my part because I can't understand people telling lies full stop. I will go and read up more on this to see if it is better explained by anyone. 
 
 Upon entering this barracks you could smell the charred smell of the wood & see the burned beams. It was difficult to photograph words on glass.
 
+![Information on Bombing attack](/Photographs/2003-08-02-Sachsenhausen/IMG_4088.jpeg)
+
 The one section I could not bring myself to dwell on was the juvenile one. Children & young people were held, tortured & killed here, & there were stories of & by some of them, but although I faced all the other horrors, I wimped out of this one.
 
-![Juvenille Barracks](/Photographs/2003-08-02-Sachsenhausen/IMG_4088.jpeg)
-![Juvenille detention description](/Photographs/2003-08-02-Sachsenhausen/IMG_4085.jpeg)
+
+![Juvenile detention description](/Photographs/2003-08-02-Sachsenhausen/IMG_4085.jpeg)
 
 In this camp, people had a number sewn on their clothing, along with a symbol which categorised their'crime'. It wasn’t explained what all the symbols meant.
 
-![Symbols]()
-![Descriptions]()
+![Symbols](/Photographs/2003-08-02-Sachsenhausen/IMG_4081.jpeg)
+![Descriptions](/Photographs/2003-08-02-Sachsenhausen/IMG_1479.png)
 
 In the midst of inhumanity, people tried to remain humane in their behaviour to other prisoners.
 
