@@ -11,7 +11,7 @@ I am not really certain why I want to catalogue this with such formality, but I 
 
 I went early in the morning, in hopes that it would be fairly quiet, as I had no idea what sort of reaction I was liable to have. I did think about going on an official tour, but again decided that I didn't want to be vulnerable & emotional over this in front of strangers, when I wasn't certain what emotional reaction I was liable to have.
 
-![Photograph of entrance](/Photographs/20Sachsenhausen/images/DSCF0590.JPG.jpg)
+![Photograph of entrance](/Photographs/20Sachsenhausen/images/IMG_1467.jpeg)
 
 Getting to Sachsenhausen was fairly straight-forward, train from Ostkreuz & then bus directly from Oranienburg to Sachsenhausen memorial. You arrive to a split wall (photo taken from Sachsenhausen-sbg.de as mine did not come out) that
 states "Memorial And Museum sachsenhausen" which feels very stark. Walking through those you go into the visitor centre. Entrance is free, & audio guides (in multiple languages) are €3. 50. The lady at the desk told me to allow 2 hours for the visit, & said that the audio guide contained 6 + hours of recording. She was very pleasant & helpful. I did find myself at several times throughout my visit wondering how people cope with working in such a place, & what sort of outlook it would give you on such things.
