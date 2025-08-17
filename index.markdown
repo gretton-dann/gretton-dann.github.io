@@ -3,7 +3,7 @@
 # To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
 
 layout: home
-title: Welcome to random thunks and photographs
+title: Home
 ---
 
 So far, this website has been used for
@@ -13,6 +13,10 @@ usually off trying to learn something else - not very good at the
 hanging round and contemplating what I've learned option, but never
 mind - I will try to put other things on here that people might find
 useful.
+
+Alternatively, Matt will just provide useful links to things only the
+Gretton-Danns can use: [Gretton-Dann Useful Links](./links/).
+
 
 # Photograph Albums
 
