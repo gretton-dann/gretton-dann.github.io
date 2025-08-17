@@ -14,3 +14,6 @@ Many of these are only accessible when inside home or on the VPN.
    * [Housing documents](https://grettondannorguk.sharepoint.com/sites/Housing/Shared%20Documents/Forms/AllItems.aspx)
  * [Finances](https://firefly.gretton-dann.org.uk/) and [importer](https://firefly.gretton-dann.org.uk/)
  * [Git repositories](https://gitea.gretton-dann.org.uk/)
+ * [Photos](https://photos.gretton-dann.org.uk/)
+ * [Audio & Music](https://audio.gretton-dann.org.uk/)
+ * [Jellyfin Video](https://video.gretton-dann.org.uk/)
